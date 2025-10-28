@@ -1,0 +1,2 @@
+# Why-AI-Can-t-Replace-Professional-Graphic-Designers
+Artificial Intelligence has made impressive strides in creating visuals, but it cannot replace the creativity, intuition, and strategic thinking of a professional graphic designer. Design is more than just making something look visually appealing—it’s about communicating a story, evoking emotions, and aligning every element with a brand’s identity 
